@@ -1,3 +1,3 @@
 # zgubito.pl
 
-Zgubi≥eú? Znalaz≥eú? Dobrze trafi≥eú!
+Zgubi≈Çe≈õ? Znalaz≈Çe≈õ? Dobrze trafi≈Çe≈õ!
